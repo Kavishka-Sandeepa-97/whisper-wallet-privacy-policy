@@ -1,0 +1,1 @@
+# whisper-wallet-privacy-policy
